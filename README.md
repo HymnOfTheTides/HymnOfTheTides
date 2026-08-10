@@ -1,3 +1,4 @@
+<img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/110266a0-df6c-4e2d-b5c7-b9504d04460c" />
 
 ## .   「 ᴘʟᴇᴀsᴇ ʀᴇᴀᴅ ʙᴇғᴏʀᴇ ɪɴᴛᴇʀᴀᴄᴛɪɴɢ! 」
 
@@ -28,3 +29,4 @@
  ## 【 ɪ ᴡɪʟʟ ʜɪᴅᴇ/ɪɢɴᴏʀᴇ/ʙʟᴏᴄᴋ ғʀᴇᴇʟʏ ɪғ ᴍʏ ʙᴏᴜɴᴅᴀʀɪᴇs ᴀʀᴇ ᴄʀᴏssᴇᴅ. ᴘʟᴇᴀsᴇ ʙᴇ ʀᴇsᴘᴇᴄᴛғᴜʟ. 】
 
 That was all, thank you for reading! ╰(*´︶`*)╯♡
+<img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/44c871ba-8915-4e23-9e89-6c32f554ec00" />
