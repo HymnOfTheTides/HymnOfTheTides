@@ -6,6 +6,10 @@
 
 -  I usually sit in TFC area. Might be semi-afk/afk; but feel free to come up and chat with me (unless in DNI criteria)! Though, my social battery is really low sometimes, so I may not be in the mood to chat (´༎ຶ▽༎ຶ`)
 
+<img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/0b6ab3fb-5772-4fd0-a0e3-971a6fba3324" />
+
+<img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/362ba2f5-2374-4d3e-b538-3384d29f9bcb" />
+
 ## .  「 ᴀ ғᴇᴡ ᴅᴏɴ'ᴛs ᴏғ ᴍɪɴᴇ 」
 
 -  I do not allow any of my ponies to be copied. Be original. You can take inspo IF you ask my permission first.
@@ -13,6 +17,8 @@
 -  Do not send random friend requests as they will be ignored. Talk to me first!
 
 -  Do not randomly vent or trauma dump to me, especially if we aren't close. Just because I'm being nice does not mean I want to be your unlicensed therapist. Ask permission first.
+
+<img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/ae19816d-aa86-4174-9dec-9f800d11da8f" />
 
 ## .  「 ᴅɴɪ .ᐟ.ᐟ.ᐟ.ᐟ 」
   
