@@ -40,8 +40,13 @@
 
  ## 【 ɪ ᴡɪʟʟ ʜɪᴅᴇ/ɪɢɴᴏʀᴇ/ʙʟᴏᴄᴋ ғʀᴇᴇʟʏ ɪғ ᴍʏ ʙᴏᴜɴᴅᴀʀɪᴇs ᴀʀᴇ ᴄʀᴏssᴇᴅ. ᴘʟᴇᴀsᴇ ʙᴇ ʀᴇsᴘᴇᴄᴛғᴜʟ. 】
 
- <img width="640" height="214" alt="Image" src="https://github.com/user-attachments/assets/44e27197-d4a7-480c-bb14-91c5f48f947e" />
+︶꒦︶꒷︶︶꒷꒦︶︶︶꒷꒦︶꒷︶꒦︶︶꒷︶
 
-That was all, thank you for reading! ╰(*´︶`*)╯♡
+╰┈➤ P, S, K, N and G my pookies <3
+
+︶꒦︶꒷︶︶꒷꒦︶︶︶꒷꒦︶꒷︶꒦︶︶꒷︶
+<img width="735" height="245" alt="Image" src="https://github.com/user-attachments/assets/9d00e652-07f9-4549-bfad-b877254b3671" />
+
+🌙,#⋆. ୨୧˚⋆ That was all, thank you for reading! ╰(*´︶`*)╯♡
 
 <img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/44c871ba-8915-4e23-9e89-6c32f554ec00" />
