@@ -32,11 +32,35 @@
 
 ## .   「 ɪɴᴛ (◍•ᴗ•◍)❤ 」
 
--  I like interacting with new people if my social battery cooperates; though, I usually don't approach people first. I also love cuds so yeah, feel free to approach!
+-  I like interacting with new people if my social battery cooperates (especially people from the fandoms I'm in)! Though, I usually don't approach people first because I feel awkward/shy sometimes. ༎ຶ⁠‿⁠༎ຶ
+
+-  I love cuds so yeah, feel free to approach if you want to cuddle with me!
 
 -  IWC if you want to rp! I'm not the best at it, and I sometimes do not feel comfortable role-playing with strangers. But, I don't mind role-playing if we get along!
 
 <img width="640" height="213" alt="Image" src="https://github.com/user-attachments/assets/dc242ef6-f1db-4a5c-801c-3d501b8b2ac0" />
+
+## .   「 ᴍʏ ᴍᴀɪɴ ғᴀɴᴅᴏᴍs ᴀᴛᴍ! 」:
+
+✧ 𝑻𝑭𝑪 (𝑜𝑓𝑐...)
+
+✧ 𝑨𝑳𝑵𝑺𝑻/𝒁𝑶𝑴𝑺𝑻 ("𝐼 𝑘𝑛𝑜𝑤 𝑚𝑦 𝑙𝑜𝑣𝑒 𝑤𝑎𝑠 𝑑𝑖𝑓𝑓𝑒𝑟𝑒𝑛𝑡 𝑓𝑟𝑜𝑚 𝑦𝑜𝑢𝑟𝑠, 𝑏𝑢𝑡 𝑖𝑡 𝑤𝑎𝑠 𝑙𝑜𝑣𝑒 𝑡𝑜𝑜")
+
+✧ 𝑱𝑱𝑲 (𝐼 𝑙𝑜𝑤-𝑘𝑒𝑦 𝑠𝑡𝑖𝑙𝑙 𝑐𝑎𝑛'𝑡 𝑚𝑜𝑣𝑒 𝑜𝑛 𝑓𝑟𝑜𝑚 𝑡ℎ𝑒 𝑤ℎ𝑜𝑙𝑒 𝑤𝑎𝑛𝑡𝑖𝑛𝑔 𝑡𝑜 𝑔𝑜 𝑡𝑜 𝑀𝑎𝑙𝑎𝑦𝑠𝑖𝑎 𝑡ℎ𝑖𝑛𝑔...)
+
+✧ 𝑳𝒐𝒗𝒆 𝑵𝒊𝒌𝒌𝒊 (𝑡ℎ𝑒 𝑁𝑖𝑘𝑘𝑖 𝑓𝑟𝑎𝑛𝑐ℎ𝑖𝑠𝑒 𝑖𝑛 𝑔𝑒𝑛𝑒𝑟𝑎𝑙 𝑖𝑔, 𝑡ℎ𝑜𝑢𝑔ℎ 𝐼 𝑜𝑛𝑙𝑦 𝑝𝑙𝑎𝑦 𝐿𝑜𝑣𝑒 𝑁𝑖𝑘𝑘𝑖)
+
+ⁱ ʲᵘˢᵗ ˡᵒᵛᵉ ᵗʰᵉ ᶜʰᵃʳᵃᶜᵗᵉʳˢ ᶠʳᵒᵐ ᵗʰᵉˢᵉ ᵍᵃᵐᵉˢ/ˢᵉʳⁱᵉˢ ˢᵒ ᵐᵘᶜʰ
+
+## .   「 ᴏᴛʜᴇʀ ғᴀɴᴅᴏᴍs 」:
+
+✧ 𝑴𝒆𝒓𝒎𝒂𝒊𝒅 𝑰𝒔𝒍𝒆 (𝑔𝑎𝑚𝑒 𝑜𝑛 𝑅𝑜𝑏𝑙𝑜𝑥. 𝑊𝑎𝑖𝑡... 𝑑𝑜 𝑤𝑒 𝑒𝑣𝑒𝑛 ℎ𝑎𝑣𝑒 𝑎 𝑓𝑎𝑛𝑑𝑜𝑚?? ಥ⁠_⁠ಥ)
+
+✧ 𝑨𝑫𝑾𝑫 (𝑖𝑘 𝑜𝑡ℎ𝑒𝑟 𝑣𝑛 𝑔𝑎𝑚𝑒𝑠 𝑡𝑜𝑜 𝑏𝑢𝑡 𝐼 ℎ𝑎𝑣𝑒 𝑓𝑎𝑣𝑜𝑢𝑟𝑖𝑡𝑒𝑠 𝑠𝑜-) 
+
+✧ 𝑳𝒐𝒍𝒊𝒓𝒐𝒄𝒌 (𝐼 𝑙𝑜𝑣𝑒𝑑 𝑡ℎ𝑖𝑠 𝑠ℎ𝑜𝑤 𝑠𝑚 ｡⁠:ﾟ⁠(⁠;⁠´⁠∩⁠`⁠;⁠)ﾟ⁠:⁠｡) 
+
+✧ 𝑮𝒉𝒊𝒃𝒍𝒊 (𝑚𝑦 𝑐ℎ𝑖𝑙𝑑ℎ𝑜𝑜𝑑, 𝑎𝑛𝑑 𝑖 𝑠𝑡𝑖𝑙𝑙 𝑙𝑜𝑣𝑒 𝑖𝑡 𝑡𝑜𝑑𝑎𝑦)
 
  ## 【 ɪ ᴡɪʟʟ ʜɪᴅᴇ/ɪɢɴᴏʀᴇ/ʙʟᴏᴄᴋ ғʀᴇᴇʟʏ ɪғ ᴍʏ ʙᴏᴜɴᴅᴀʀɪᴇs ᴀʀᴇ ᴄʀᴏssᴇᴅ. ᴘʟᴇᴀsᴇ ʙᴇ ʀᴇsᴘᴇᴄᴛғᴜʟ. 】
 
