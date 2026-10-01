@@ -2,11 +2,15 @@
 
 ## .   「 ᴘʟᴇᴀsᴇ ʀᴇᴀᴅ ʙᴇғᴏʀᴇ ɪɴᴛᴇʀᴀᴄᴛɪɴɢ! 」
 
--  You can call me Niks/Lunar. I'm chill with nicknames too if it isn't anything uncomfortable! 
+-   You can call me Niks/Lunar. I'm chill with nicknames too if it isn't anything uncomfortable! 
 
--  I usually sit in TFC area. Might be semi-afk/afk; but feel free to come up and chat with me (unless in DNI criteria)! Though, my social battery is really low sometimes, so I may not be in the mood to chat (´༎ຶ▽༎ຶ`)
+-  I usually sit in TFC area. Might be semi-afk/afk; but feel free to come up and chat with me (unless in DNI criteria)!
 
--  Currently obsessed with jesters, mermaids, jellyfish, whales, ocean themes ig and Gojo Satoru ╮(╯_╰")╭ (and my beautiful shades of blues, ofc)
+࿐࿔˚ Though, my social battery is really low sometimes, so I may not be in the mood to chat (´༎ຶ▽༎ຶ`)
+
+-  ᴄᴜʀʀᴇɴᴛ ғ/ᴏs : ᴊᴇsᴛᴇʀ (from TFC, selective sharing) and ɢᴏᴊᴏ sᴀᴛᴏʀᴜ (from JJK, sharing)  ╮(╯_╰")╭
+
+-  ᴄᴏᴍғᴏʀᴛ ᴄʜᴀʀᴀᴄᴛᴇʀs (that I also kind of kin ฅ゛): ᴄᴏʟᴜᴍʙɪɴᴀ (TFC), ᴘɪᴇʀʀᴏᴛ (TFC), ʜᴜᴍᴍᴇʀ (TSFTL), ᴀᴠᴇʀʏ (SFAWTDE/DAWTDE)
 
 <img width="1500" height="500" alt="Image" src="https://github.com/user-attachments/assets/0b6ab3fb-5772-4fd0-a0e3-971a6fba3324" />
 
@@ -28,6 +32,8 @@
 
 -  If you're below 15 years of age, please refrain from interacting with me. I can make exceptions (friends of friends, not overly immature, etc) but I do not feel comfortable with problematic age gaps! IWC if you must.
 
+- DNI or IWC Jester doubles (I only like sharing Jester with people I'm chill/comfortable with!)
+
 <img width="640" height="214" alt="Image" src="https://github.com/user-attachments/assets/44e27197-d4a7-480c-bb14-91c5f48f947e" />
 
 ## .   「 ɪɴᴛ (◍•ᴗ•◍)❤ 」
@@ -44,7 +50,7 @@
 
 ✧ 𝑻𝑭𝑪 (𝑜𝑓𝑐...)
 
-✧ 𝑨𝑳𝑵𝑺𝑻/𝒁𝑶𝑴𝑺𝑻 ("𝐼 𝑘𝑛𝑜𝑤 𝑚𝑦 𝑙𝑜𝑣𝑒 𝑤𝑎𝑠 𝑑𝑖𝑓𝑓𝑒𝑟𝑒𝑛𝑡 𝑓𝑟𝑜𝑚 𝑦𝑜𝑢𝑟𝑠, 𝑏𝑢𝑡 𝑖𝑡 𝑤𝑎𝑠 𝑙𝑜𝑣𝑒 𝑡𝑜𝑜")
+✧ 𝑴𝑪𝒀𝑻 (𝐼'𝑚 𝑠𝑡𝑖𝑙𝑙 𝑎 𝑏𝑖𝑡 𝑛𝑒𝑤 𝑏𝑢𝑡 𝑖𝑘 𝑆𝐹𝐴𝑊𝑇𝐷𝐸/𝐷𝐴𝑊𝑇𝐷𝐸, 𝑇ℎ𝑒 𝑠𝑒𝑎𝑟𝑐ℎ 𝑓𝑜𝑟 𝑡ℎ𝑒 𝐿𝑒𝑣𝑖𝑎𝑡ℎ𝑎𝑛 𝑎𝑛𝑑 𝑓𝑒𝑤 𝑚𝑐𝑦𝑡-𝑒𝑟𝑠)
 
 ✧ 𝑱𝑱𝑲 (𝐼 𝑙𝑜𝑤-𝑘𝑒𝑦 𝑠𝑡𝑖𝑙𝑙 𝑐𝑎𝑛'𝑡 𝑚𝑜𝑣𝑒 𝑜𝑛 𝑓𝑟𝑜𝑚 𝑡ℎ𝑒 𝑤ℎ𝑜𝑙𝑒 𝑤𝑎𝑛𝑡𝑖𝑛𝑔 𝑡𝑜 𝑔𝑜 𝑡𝑜 𝑀𝑎𝑙𝑎𝑦𝑠𝑖𝑎 𝑡ℎ𝑖𝑛𝑔...)
 
